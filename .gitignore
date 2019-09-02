@@ -107,3 +107,7 @@ venv.bak/
 # 2019-Aug-25
 /html/
 /Research
+
+# logs & date
+*.json
+*.log
