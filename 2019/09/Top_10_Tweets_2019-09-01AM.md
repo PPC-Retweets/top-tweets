@@ -80,4 +80,3 @@
  20)   5 #elections2019
 
 ##### Sunday, September 1, 2019
-
