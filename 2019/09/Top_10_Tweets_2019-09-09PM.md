@@ -61,61 +61,6 @@
  43) [@HarryDhillonPPC](https://www.twitter.com/HarryDhillonPPC)
  44) [@PBordonaroPPC](https://www.twitter.com/PBordonaroPPC)
 
-##### Monday, September 9, 2019
-
-
-
-### Tweet Section
-
-@ppcgrassroots
-@chevymo
-@MaxWellWilers
-@mmccdenier
-@PpcRDMV
-@richardbligdon
-@Jhutch43945987
-@ppclondonwest
-@DustinG_esq
-@TomIkert
-
-@dyolltrah
-@ppcmorton
-@ethersvoice
-@AndyBrookeLmstn
-@mostats_mrmfl
-@RegPiper
-@realAndreFulham
-@DanbQc
-@sdriverppc2019
-@thereds8
-
-@SupportersOfPPC
-@pierre_charland
-@LucMatte9
-@PPCpfdsddo
-@Wbdzn1
-@DeonRDoiron1
-@CanadaSeige
-@PNowhiteflag
-@debrajocurry
-@JackNationalist
-
-@Valerie24190901
-@letloverule4
-@DJGroyper
-@NotMyCanada1957
-@ArcadiaNancy
-@syl20carle
-@PPCKCR
-@dyolltrah1
-@Lawra_Lavallee
-@Michele4Unity4C
-
-@censoredtrucker
-@Brian10842410
-@HarryDhillonPPC
-@PBordonaroPPC
-
 
 ### Top Hashtags
 
