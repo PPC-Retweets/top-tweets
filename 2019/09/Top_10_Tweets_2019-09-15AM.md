@@ -88,6 +88,88 @@
  68) [@JackNationalist](https://www.twitter.com/JackNationalist)
  69) [@DustinG_esq](https://www.twitter.com/DustinG_esq)
 
+##### Sunday, September 15, 2019
+
+
+
+### Tweet Section
+
+@KeithBryan15
+@Jhutch43945987
+@steckle_w
+@HouleLaureen
+@LucMatte9
+@debrajocurry
+@magiver1001
+@mmccdenier
+@chevymo
+@CoitusInterupt2
+
+@LooniePolitics
+@pierre_charland
+@bimvision
+@SupportersOfPPC
+@BgBurton99
+@Observor
+@PPCpfdsddo
+@ppcgrassroots
+@ipoliticsca
+@AndyBrookeLmstn
+
+@punditclass
+@HuffPostCanada
+@CPAC_TV
+@phil_rack
+@DavidPretty5
+@GtoPmd
+@syl20carle
+@ppcEDApsm
+@MeryleeOTTCtr
+@SallyDilano
+
+@ITS_LIISA_
+@thereds8
+@ReporterTeresa
+@RobLussier
+@BillTufts
+@NotMyCanada1957
+@G_ozzy
+@gunz_tom
+@HannahThibedeau
+@quito_maggi
+
+@JohnstonMarc1
+@MichaelDeduce
+@Warrioroftruths
+@KarinLitzcke
+@JIGNAJANI_PPC
+@WilliamWanklyn
+@Diane_1605
+@mckdeb4
+@dyolltrah1
+@RyanSchultz_PPC
+
+@IsaacHayesPPC
+@RogerSampson13
+@PPCKCR
+@jojocangirl
+@Curlgurl4U
+@ErikaTraub1
+@CTVNews
+@ChadHudsonPPC
+@Lawsome_
+@CanadianPolling
+
+@MARCRIVAZ1
+@TonightsFights
+@MichelleZilio
+@ProudCanadianN1
+@RegPiper
+@realAndreFulham
+@DanSummersPPC
+@JackNationalist
+@DustinG_esq
+
 
 ### Top Hashtags
 
