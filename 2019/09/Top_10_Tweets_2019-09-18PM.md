@@ -123,10 +123,6 @@
 100) [@srbal4](https://www.twitter.com/srbal4)
 
 
-##### Wednesday, September 18, 2019
-
-
-
 ### Top Hashtags
 
   1) #elxn43
