@@ -1,0 +1,173 @@
+### Daily Top 10 Tweets, PM Edition
+##### Tuesday, October 8, 2019
+ 1) https://www.twitter.com/TheRealKeean/status/1181391551005708288
+ 2) https://www.twitter.com/punditclass/status/1181359239450648576
+ 3) https://www.twitter.com/MrAndyNgo/status/1181419461800148992
+ 4) https://www.twitter.com/CandiceMalcolm/status/1181391698074771456
+ 5) https://www.twitter.com/MaximeBernier/status/1181570589716307968
+ 6) https://www.twitter.com/MaximeBernier/status/1181544324846239744
+ 7) https://www.twitter.com/MaximeBernier/status/1181537854339649536
+ 8) https://www.twitter.com/SalimMansurLNC/status/1181597053723521025
+ 9) https://www.twitter.com/TheRealKeean/status/1181397945914142725
+10) https://www.twitter.com/punditclass/status/1181631580797751296
+
+### Top Contributors
+  1) [@debrajocurry](https://www.twitter.com/debrajocurry)
+  2) [@BgBurton99](https://www.twitter.com/BgBurton99)
+  3) [@mmccdenier](https://www.twitter.com/mmccdenier)
+  4) [@chevymo](https://www.twitter.com/chevymo)
+  5) [@JTA_webwave](https://www.twitter.com/JTA_webwave)
+  6) [@pierre_charland](https://www.twitter.com/pierre_charland)
+  7) [@BlawJay](https://www.twitter.com/BlawJay)
+  8) [@susanbernier](https://www.twitter.com/susanbernier)
+  9) [@ITS_LIISA_](https://www.twitter.com/ITS_LIISA_)
+ 10) [@PpcRDMV](https://www.twitter.com/PpcRDMV)
+
+ 11) [@Young_JLY](https://www.twitter.com/Young_JLY)
+ 12) [@canada_warrior](https://www.twitter.com/canada_warrior)
+ 13) [@Diane_1605](https://www.twitter.com/Diane_1605)
+ 14) [@richardbligdon](https://www.twitter.com/richardbligdon)
+ 15) [@Jhutch43945987](https://www.twitter.com/Jhutch43945987)
+ 16) [@MarkFriesen08](https://www.twitter.com/MarkFriesen08)
+ 17) [@thereds8](https://www.twitter.com/thereds8)
+ 18) [@Carolannsassy](https://www.twitter.com/Carolannsassy)
+ 19) [@LucMatte9](https://www.twitter.com/LucMatte9)
+ 20) [@MeryleeOTTCtr](https://www.twitter.com/MeryleeOTTCtr)
+
+ 21) [@Bbawa](https://www.twitter.com/Bbawa)
+ 22) [@Mike_Damage](https://www.twitter.com/Mike_Damage)
+ 23) [@Valerie24190901](https://www.twitter.com/Valerie24190901)
+ 24) [@MaximeBernier](https://www.twitter.com/MaximeBernier)
+ 25) [@ppclondonwest](https://www.twitter.com/ppclondonwest)
+ 26) [@KAreYouSerious](https://www.twitter.com/KAreYouSerious)
+ 27) [@stephan38337343](https://www.twitter.com/stephan38337343)
+ 28) [@NeverCowed](https://www.twitter.com/NeverCowed)
+ 29) [@dagmar_johnson](https://www.twitter.com/dagmar_johnson)
+ 30) [@punditclass](https://www.twitter.com/punditclass)
+
+ 31) [@rubywright1](https://www.twitter.com/rubywright1)
+ 32) [@WayWestGuy](https://www.twitter.com/WayWestGuy)
+ 33) [@i_heart_canada](https://www.twitter.com/i_heart_canada)
+ 34) [@TransSplendor](https://www.twitter.com/TransSplendor)
+ 35) [@DanSummersPPC](https://www.twitter.com/DanSummersPPC)
+ 36) [@DryasYounger1](https://www.twitter.com/DryasYounger1)
+ 37) [@MJW1924](https://www.twitter.com/MJW1924)
+ 38) [@flavius_jc](https://www.twitter.com/flavius_jc)
+ 39) [@BKenni](https://www.twitter.com/BKenni)
+ 40) [@jellehpish](https://www.twitter.com/jellehpish)
+
+ 41) [@ethersvoice](https://www.twitter.com/ethersvoice)
+ 42) [@AndyBrookeLmstn](https://www.twitter.com/AndyBrookeLmstn)
+ 43) [@PPCKCR](https://www.twitter.com/PPCKCR)
+ 44) [@JackNationalist](https://www.twitter.com/JackNationalist)
+ 45) [@ChloePpc](https://www.twitter.com/ChloePpc)
+ 46) [@SKConservative](https://www.twitter.com/SKConservative)
+ 47) [@gord09676903](https://www.twitter.com/gord09676903)
+ 48) [@NotMyCanada62](https://www.twitter.com/NotMyCanada62)
+ 49) [@DustinG_esq](https://www.twitter.com/DustinG_esq)
+ 50) [@magiver1001](https://www.twitter.com/magiver1001)
+
+ 51) [@ppcpatrick](https://www.twitter.com/ppcpatrick)
+ 52) [@fakenewscan](https://www.twitter.com/fakenewscan)
+ 53) [@realAndreFulham](https://www.twitter.com/realAndreFulham)
+ 54) [@rjflyin](https://www.twitter.com/rjflyin)
+ 55) [@jojocangirl](https://www.twitter.com/jojocangirl)
+ 56) [@Warrioroftruths](https://www.twitter.com/Warrioroftruths)
+ 57) [@ppcmorton](https://www.twitter.com/ppcmorton)
+ 58) [@plumbkeith1](https://www.twitter.com/plumbkeith1)
+ 59) [@JPLuisi1](https://www.twitter.com/JPLuisi1)
+ 60) [@TrumpSTAR6](https://www.twitter.com/TrumpSTAR6)
+
+ 61) [@SupportersOfPPC](https://www.twitter.com/SupportersOfPPC)
+ 62) [@WhyMax_ca](https://www.twitter.com/WhyMax_ca)
+ 63) [@KarinLitzcke](https://www.twitter.com/KarinLitzcke)
+ 64) [@RobLussier](https://www.twitter.com/RobLussier)
+ 65) [@palevell](https://www.twitter.com/palevell)
+ 66) [@realJeff45](https://www.twitter.com/realJeff45)
+ 67) [@KevinLeeMorris](https://www.twitter.com/KevinLeeMorris)
+ 68) [@DeonRDoiron1](https://www.twitter.com/DeonRDoiron1)
+ 69) [@italcanon](https://www.twitter.com/italcanon)
+ 70) [@GrantGibson](https://www.twitter.com/GrantGibson)
+
+ 71) [@ThatCanuckchik](https://www.twitter.com/ThatCanuckchik)
+ 72) [@Can_Libertarian](https://www.twitter.com/Can_Libertarian)
+ 73) [@JeremyL61050917](https://www.twitter.com/JeremyL61050917)
+ 74) [@DebbieAEvans13](https://www.twitter.com/DebbieAEvans13)
+ 75) [@Sue__Stevenson](https://www.twitter.com/Sue__Stevenson)
+ 76) [@marckovvvvv](https://www.twitter.com/marckovvvvv)
+ 77) [@mckdeb4](https://www.twitter.com/mckdeb4)
+ 78) [@Lawra_Lavallee](https://www.twitter.com/Lawra_Lavallee)
+ 79) [@MimiQbc](https://www.twitter.com/MimiQbc)
+ 80) [@LilyTbd](https://www.twitter.com/LilyTbd)
+
+ 81) [@dyolltrah1](https://www.twitter.com/dyolltrah1)
+ 82) [@JennRobb92](https://www.twitter.com/JennRobb92)
+ 83) [@Tony__Cook](https://www.twitter.com/Tony__Cook)
+ 84) [@deehan_sean](https://www.twitter.com/deehan_sean)
+ 85) [@dyolltrah](https://www.twitter.com/dyolltrah)
+ 86) [@AlieBedard](https://www.twitter.com/AlieBedard)
+ 87) [@BatholithLivin](https://www.twitter.com/BatholithLivin)
+ 88) [@KellyLorenczPPC](https://www.twitter.com/KellyLorenczPPC)
+ 89) [@Steeper33](https://www.twitter.com/Steeper33)
+ 90) [@rdviger](https://www.twitter.com/rdviger)
+
+ 91) [@Pat_Potvin](https://www.twitter.com/Pat_Potvin)
+ 92) [@GeneBalfourPPC](https://www.twitter.com/GeneBalfourPPC)
+ 93) [@Cagsy0021](https://www.twitter.com/Cagsy0021)
+ 94) [@now_upside_down](https://www.twitter.com/now_upside_down)
+ 95) [@Wbdzn1](https://www.twitter.com/Wbdzn1)
+ 96) [@littlebarbiebee](https://www.twitter.com/littlebarbiebee)
+ 97) [@VoteJubinville](https://www.twitter.com/VoteJubinville)
+ 98) [@RickStewartPPC](https://www.twitter.com/RickStewartPPC)
+ 99) [@RenaldCanada](https://www.twitter.com/RenaldCanada)
+100) [@ppc_stpauls](https://www.twitter.com/ppc_stpauls)
+
+101) [@svdow1](https://www.twitter.com/svdow1)
+102) [@realalfiealpha](https://www.twitter.com/realalfiealpha)
+103) [@G_ozzy](https://www.twitter.com/G_ozzy)
+104) [@NadineWellwood](https://www.twitter.com/NadineWellwood)
+105) [@tweetheart717](https://www.twitter.com/tweetheart717)
+106) [@Canadianpatri16](https://www.twitter.com/Canadianpatri16)
+107) [@jackiebullivant](https://www.twitter.com/jackiebullivant)
+108) [@HolaEmili](https://www.twitter.com/HolaEmili)
+109) [@ErikaTraub1](https://www.twitter.com/ErikaTraub1)
+110) [@WilliamWanklyn](https://www.twitter.com/WilliamWanklyn)
+
+111) [@ScottMillerPPC](https://www.twitter.com/ScottMillerPPC)
+112) [@Bernier_Nation](https://www.twitter.com/Bernier_Nation)
+113) [@PartyZajac](https://www.twitter.com/PartyZajac)
+114) [@KeithBryan15](https://www.twitter.com/KeithBryan15)
+115) [@PPCVanEast](https://www.twitter.com/PPCVanEast)
+116) [@PPC_CentralAB](https://www.twitter.com/PPC_CentralAB)
+117) [@PartiCanada](https://www.twitter.com/PartiCanada)
+118) [@GIJEZUS](https://www.twitter.com/GIJEZUS)
+119) [@EstebanJones001](https://www.twitter.com/EstebanJones001)
+120) [@macleans](https://www.twitter.com/macleans)
+
+
+
+### Top Hashtags
+
+  1) [#ppc2019](https://www.twitter.com/hashtag/ppc2019)
+  2) [#peoplesparty](https://www.twitter.com/hashtag/peoplesparty)
+  3) [#maximebernier](https://www.twitter.com/hashtag/maximebernier)
+  4) [#elxn43](https://www.twitter.com/hashtag/elxn43)
+  5) [#ppc](https://www.twitter.com/hashtag/ppc)
+  6) [#cdnpoli](https://www.twitter.com/hashtag/cdnpoli)
+  7) [#ppc2019alltheway](https://www.twitter.com/hashtag/ppc2019alltheway)
+  8) [#leadersdebate2019](https://www.twitter.com/hashtag/leadersdebate2019)
+  9) [#voteppc](https://www.twitter.com/hashtag/voteppc)
+ 10) [#voteppc2019](https://www.twitter.com/hashtag/voteppc2019)
+ 11) [#peoplespartyofcanada](https://www.twitter.com/hashtag/peoplespartyofcanada)
+ 12) [#canadadebates2019](https://www.twitter.com/hashtag/canadadebates2019)
+ 13) [#berniernation](https://www.twitter.com/hashtag/berniernation)
+ 14) [#trudeaumustgo](https://www.twitter.com/hashtag/trudeaumustgo)
+ 15) [#debatenight](https://www.twitter.com/hashtag/debatenight)
+ 16) [#canada](https://www.twitter.com/hashtag/canada)
+ 17) [#elxn2019](https://www.twitter.com/hashtag/elxn2019)
+ 18) [#debatdeschefs](https://www.twitter.com/hashtag/debatdeschefs)
+ 19) [#elx43](https://www.twitter.com/hashtag/elx43)
+ 20) [#tuesdaytop10](https://www.twitter.com/hashtag/tuesdaytop10)
+
+##### Tuesday, October 8, 2019
+
