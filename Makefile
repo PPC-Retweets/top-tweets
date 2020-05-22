@@ -1,4 +1,4 @@
-# Makefile v1.1.30 - Tuesday, September 5, 2017
+# Makefile v1.1.31 - Tuesday, September 5, 2017
 
 SHELL		:= /usr/bin/env bash
 PROJECT		:= $(shell basename ${PWD})
@@ -9,7 +9,7 @@ SUFFIX		:= $(shell date +\~.%s)
 BAKDIR		:= local/backups
 BACKUPS		:= --suffix='~.$(TIMESTAMP)' --backup-dir=$(BAKDIR) 
 EXCLUDES	:= {'.DS_Store','*~*','.idea','__pycache__','flask','*.db','db_repository*','local','tmp/*'}
-ROPTS		:= -Cabhuve 'ssh -Aq' --exclude=$(EXCLUDES) $(BACKUPS) --delete
+ROPTS		:= -Cabhuve 'ssh -Aq' --exclude=$(EXCLUDES) $(BACKUPS)
 
 .PHONY: test drysync
 
